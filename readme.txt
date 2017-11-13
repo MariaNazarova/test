@@ -1,1 +1,1 @@
-Created by Shaludin
+Created by Shaludin Alexandr
